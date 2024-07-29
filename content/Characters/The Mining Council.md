@@ -1,0 +1,1 @@
+The Mining Council is the residing judicial force over the [[Troll Mountain Kobold Tribe]]. They handle any legal issues within the tribe. Only the most respected and elder miners can be a part of the Council, and it is a great honor.

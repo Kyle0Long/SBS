@@ -1,0 +1,1 @@
+Seg went to... wherever this campaign starts, looking for any way to prove his craftsmanship.
